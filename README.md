@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @LeonidasChalikias
+- 👀 I’m interested in Computers and Cars
+- 🌱 I’m currently learning New Programming Language
+- 📫 How to reach me leonidaschalikias@protonmail.com
+- ⚡ Fun fact: The first computer mouse was made from wood
+- 💞💞💞💞💞
